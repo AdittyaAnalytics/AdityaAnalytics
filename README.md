@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **adityasingh84482@gmail.com* For Collaboration/Project or 
 - 💬 **Ask me about:** Data Analysis
 - 📫 **How to reach me:** 8448266190 , adityasingh84482@gmail.com
 - 😄 **Pronouns:** Aditya
-- ⚡ **Fun fact:** I Love Tech 
+- ⚡ **Fun fact:** I Love Tech.
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/zenix_aditya) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/http://linkedin.com/in/im-aditya-singh) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:adityasingh844822@gmail.com) 
